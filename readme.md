@@ -1,1 +1,2 @@
-## Hyderabadi's Open Source Community
+## Hyderabadi's 
+Community of Opensource Culture and Entertainment 
